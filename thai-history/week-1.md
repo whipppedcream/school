@@ -29,3 +29,4 @@
 
 ### Class Activity
 Visit the [link](https://bit.ly/2QRWxSZ).
+Group 3 and worksheet.
