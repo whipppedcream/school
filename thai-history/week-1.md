@@ -26,3 +26,6 @@
 	- Phra Soralalikhit's Portrait of King Nangklao: the first Thai portrait of the king. Why this late? Most citizens are not allowed to see the king. This is drawn even from the memories.
 	- late 1800s to early 1900s
 	- What is the answer to the question: *"What were the important factors of changes of Siam from 1800s to 1900s? (from early to modern-day?)"*
+
+### Class Activity
+Visit the [link](https://bit.ly/2QRWxSZ).
