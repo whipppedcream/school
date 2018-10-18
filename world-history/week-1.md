@@ -39,4 +39,10 @@ Take for the example the list of presidents of the Republic of Korea and Thailan
 Why should we focus only on humans when the world has begun long ago? Observe that the division of history in different periods and eras will define what we need to study about the history. (Take, for example, Max's autobiography by division into different eras (primary/secondary), (early/middle/late), (before/after heartbreak)).
 
 ### Assignments
-Links: [[1]](https://bit.ly/2OsB0mY), [[2]](https://bit.ly/2Cgrf45), [[3]](https://bit.ly/1XjAE06)
+Links: [[1]](https://bit.ly/2OsB0mY), [[2]](https://bit.ly/2Cgrf45), [[3]](https://bit.ly/1XjAE06) (I was assigned 2.)  
+Make an MS Sway blog on "When should history begin?" to compare ideas of three authors (At least 5 paragraphs). Address the following questions:
+- Who are the authors?
+- When do they think history should begin?
+- Why do they think so?'
+
+Submit 2 days before class (Tuesday, October 23).
