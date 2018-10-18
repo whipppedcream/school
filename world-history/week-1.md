@@ -1,8 +1,6 @@
 # Week 1
 *October 18, 2018*
 
-Use [Microsoft Sway](https://sway.office.com/my) to write blogs.
-
 ### Grading
 
 |||
@@ -40,7 +38,7 @@ Why should we focus only on humans when the world has begun long ago? Observe th
 
 ### Assignments
 Links: [[1]](https://bit.ly/2OsB0mY), [[2]](https://bit.ly/2Cgrf45), [[3]](https://bit.ly/1XjAE06) (I was assigned 2.)  
-Make an MS Sway blog on "When should history begin?" to compare ideas of three authors (At least 5 paragraphs). Address the following questions:
+Make an [MS Sway](https://sway.office.com/my) blog on "When should history begin?" to compare ideas of three authors (At least 5 paragraphs). Address the following questions:
 - Who are the authors?
 - When do they think history should begin?
 - Why do they think so?'
