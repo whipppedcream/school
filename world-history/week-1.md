@@ -26,6 +26,6 @@ Book review characteristics
 Scoring Criteria
 > essay content, understanding of the Book, writing skills, originality, wording/timing, email format
 
-Examples [[1]](https://github.com/whipppedcream/school/blob/master/world-history/book-review-examples/Example%201.pdf), [[2]](https://github.com/whipppedcream/school/blob/master/world-history/book-review-examples/Example%202.pdf), [[3]](https://github.com/whipppedcream/school/blob/master/world-history/book-review-examples/Example%203.pdf) (worst: 13/20) 
+Examples [[1]](https://github.com/whipppedcream/school/blob/master/world-history/book-review-examples/Example%201.pdf) (19/20), [[2]](https://github.com/whipppedcream/school/blob/master/world-history/book-review-examples/Example%202.pdf) (19/20), [[3]](https://github.com/whipppedcream/school/blob/master/world-history/book-review-examples/Example%203.pdf) (13/20) 
 
 **Book Selection Time**: Monday, October 22, 8 am.
