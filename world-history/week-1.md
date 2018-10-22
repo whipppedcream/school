@@ -44,3 +44,5 @@ Make an [MS Sway](https://sway.office.com/my) blog on "When should history begin
 - Why do they think so?'
 
 Submit 2 days before class (Tuesday, October 23).
+
+> The author is Ernst Gombirch, an Austrian-born art historian, who is well known for many works of cultural and art history. He argued that history begins during the time where we have a very precise idea of what had happened and when it happened, and that during the beginning of history people already had things that modern people had, such as cows, sheeps, dogs, etc. The author pinpoints the beginning of history to 3100 BC in Egypt. This is probably because it was one of the earliest civilizations where we had exact and clear records of what had happened in the past in the forms of hymns and landmarks such as the pyramids.
