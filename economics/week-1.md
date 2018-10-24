@@ -39,3 +39,6 @@ Comparative of five selected countries: **South Korea**, Estonia, Singapore, Swe
 |GDP: A Brief but Affectionate History (GDP: ประวัติศาสตร์เบื้องหลังตัวเลขเปลี่ยนโลก) ผู้แต่ง Diane Coyle ผู้แปล ฐณฐ จินดานนท์*|
 
 [*] is for 2 points, and [**] is for 3 points.
+
+**Reading Materials for Week 2**
+[This](https://github.com/whipppedcream/school/blob/master/economics/Cambridge%20International%20AS%20and%20A%20Level%20Economics%20pp.%2012%20to%2016.pdf) and [this](https://github.com/whipppedcream/school/blob/master/economics/Reading%20Material%20Week%201%20What%20is%20%20Economics.pdf).
