@@ -11,6 +11,7 @@
 |Midterm Exam				|20|
 |Final Exam					|20|
 
+### Book Review
 [List](http://bit.ly/2P1u2oB) of world history books
 
 Book review characteristics  
