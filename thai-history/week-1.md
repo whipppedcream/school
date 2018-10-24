@@ -32,4 +32,4 @@ Visit the [link](https://bit.ly/2QRWxSZ).
 Group 3 and worksheet.
 
 ### Reading
-The assignment is similar to that of [world history](), except for the [book list](https://kvis-my.sharepoint.com/:x:/r/personal/601013_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95fb3fc7-eec2-429f-bd5c-011688d75fd9%7D&action=default).
+The assignment is similar to that of [world history](https://github.com/whipppedcream/school/blob/master/world-history/week-1.md#book-review), except for the [book list](https://kvis-my.sharepoint.com/:x:/r/personal/601013_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95fb3fc7-eec2-429f-bd5c-011688d75fd9%7D&action=default).
