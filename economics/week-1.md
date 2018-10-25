@@ -21,6 +21,9 @@ Comparative of five selected countries: **South Korea**, Estonia, Singapore, Swe
 |9| Health Care and Public Health System: life expectancy, happiness, and healthily of people|
 |10| Conclusion|
 
+ **Important**
+ Write “Week * Writing Assignment Economics 2018”.
+ 
 **Books for Extra Points**
 
 ||
