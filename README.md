@@ -18,9 +18,11 @@ M.6 Term 2 Lecture Notes and Resources.
 [ตรวจสอบสถานะเอกสาร](https://goo.gl/quwJjr)  
 [ตารางเวลาKISF2](https://kvis-my.sharepoint.com/:x:/r/personal/581029_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B09cf5ef3-f955-40c2-af32-a9d1733fde2d%7D&action=default)   
 [แบบฟอร์มคำขอร้องข้อมูลจากฝ่ายวิชาการ](https://goo.gl/5wLzPU)  
-[script_Monkey's paw 6/1](https://drive.google.com/drive/folders/1cYP0k_imKJ1lZT61SBCatFXLsg0CxHPt?fbclid=IwAR3kASUQv3j3nTvHL4NzepHreSWcsSHXiXpu2G1qHnoJGSDCMv9jgpqqGqM)   
+[Script_Monkey's paw 6/1](https://drive.google.com/drive/folders/1cYP0k_imKJ1lZT61SBCatFXLsg0CxHPt?fbclid=IwAR3kASUQv3j3nTvHL4NzepHreSWcsSHXiXpu2G1qHnoJGSDCMv9jgpqqGqM)   
 [KVIS student pictures](https://drive.google.com/drive/folders/1g3i-PDXhN8ik6h_X6d5PpGTwrsUihCLE?fbclid=IwAR3s6mtb87KRGD8uuGxj1iE-B9vkCEAVnYDDBKeXVpuZ4beTzut6fnObTGI)  
-[APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)
+
 
 #### APCYS 2018
-[Day 0](https://photos.google.com/share/AF1QipNMnHMT4nDzCmVjO_kV2dFIPmEEETa1FBo1JLcPQ1EPOBxx2sFfJOCC-A_wcrr-ow?key=RUhZbkU3TkhvNGQ2em1fQWh5c2lIRWpUZXJIMUh30)
+[APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)
+[Photos Day 0-1](https://photos.google.com/share/AF1QipNMnHMT4nDzCmVjO_kV2dFIPmEEETa1FBo1JLcPQ1EPOBxx2sFfJOCC-A_wcrr-ow?key=RUhZbkU3TkhvNGQ2em1fQWh5c2lIRWpUZXJIMUh30)
+[Photos Day 2](https://photos.google.com/share/AF1QipNUo9OE_zRtl8NiA7cW2pdFH0hRpWlPgBef7lZpV4NTGOACWvIanr3KKokNKRDtcQ?key=MF9VX1IwWmY3c3hvYlM5X3FrM09sLW5WWTBZUUh3)
