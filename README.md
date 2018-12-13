@@ -23,6 +23,6 @@ M.6 Term 2 Lecture Notes and Resources.
 
 
 #### APCYS 2018
-[APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)
-[Photos Day 0-1](https://photos.google.com/share/AF1QipNMnHMT4nDzCmVjO_kV2dFIPmEEETa1FBo1JLcPQ1EPOBxx2sFfJOCC-A_wcrr-ow?key=RUhZbkU3TkhvNGQ2em1fQWh5c2lIRWpUZXJIMUh30)
-[Photos Day 2](https://photos.google.com/share/AF1QipNUo9OE_zRtl8NiA7cW2pdFH0hRpWlPgBef7lZpV4NTGOACWvIanr3KKokNKRDtcQ?key=MF9VX1IwWmY3c3hvYlM5X3FrM09sLW5WWTBZUUh3)
+[APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)  
+[Photos Day 0-1](https://photos.google.com/share/AF1QipNMnHMT4nDzCmVjO_kV2dFIPmEEETa1FBo1JLcPQ1EPOBxx2sFfJOCC-A_wcrr-ow?key=RUhZbkU3TkhvNGQ2em1fQWh5c2lIRWpUZXJIMUh30)  
+[Photos Day 2](https://photos.google.com/share/AF1QipNUo9OE_zRtl8NiA7cW2pdFH0hRpWlPgBef7lZpV4NTGOACWvIanr3KKokNKRDtcQ?key=MF9VX1IwWmY3c3hvYlM5X3FrM09sLW5WWTBZUUh3)  
