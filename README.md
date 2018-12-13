@@ -21,3 +21,6 @@ M.6 Term 2 Lecture Notes and Resources.
 [script_Monkey's paw 6/1](https://drive.google.com/drive/folders/1cYP0k_imKJ1lZT61SBCatFXLsg0CxHPt?fbclid=IwAR3kASUQv3j3nTvHL4NzepHreSWcsSHXiXpu2G1qHnoJGSDCMv9jgpqqGqM)   
 [KVIS student pictures](https://drive.google.com/drive/folders/1g3i-PDXhN8ik6h_X6d5PpGTwrsUihCLE?fbclid=IwAR3s6mtb87KRGD8uuGxj1iE-B9vkCEAVnYDDBKeXVpuZ4beTzut6fnObTGI)  
 [APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)
+
+#### APCYS 2018
+[Day 0](https://photos.google.com/share/AF1QipNMnHMT4nDzCmVjO_kV2dFIPmEEETa1FBo1JLcPQ1EPOBxx2sFfJOCC-A_wcrr-ow?key=RUhZbkU3TkhvNGQ2em1fQWh5c2lIRWpUZXJIMUh30)
