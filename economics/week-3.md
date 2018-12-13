@@ -39,3 +39,5 @@ Utility has no standard form of determination. Utility is subjective. Take for e
 The principle is if humans have an access to a resource multiple times, the *apparent* value or the utility is reduced. Total utility is the maximum point of utility. After total utility has been reached, the utility will always decrease. This is called **the law of diminishing returns** (diminishing marginal utility).
 
 For example, more than three teachers may not be as useful. BNK48 handshake events are organized in a three-month interval in order to keep marginal utility high.    
+
+Review *Homo Economicus*.

@@ -19,6 +19,5 @@ M.6 Term 2 Lecture Notes and Resources.
 [ตารางเวลาKISF2](https://kvis-my.sharepoint.com/:x:/r/personal/581029_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B09cf5ef3-f955-40c2-af32-a9d1733fde2d%7D&action=default)   
 [แบบฟอร์มคำขอร้องข้อมูลจากฝ่ายวิชาการ](https://kvis-my.sharepoint.com/personal/581029_kvis_ac_th/Documents/Forms/All.aspx?slrid=7351a89e-8029-7000-99c3-cf60cf828df1&RootFolder=%2Fpersonal%2F581029_kvis_ac_th%2FDocuments%2FAcademics%20Affair%2F%E0%B9%81%E0%B8%9A%E0%B8%9A%E0%B8%9F%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B8%A1%E0%B8%84%E0%B8%B3%E0%B8%A3%E0%B9%89%E0%B8%AD%E0%B8%87%2C%E0%B8%9A%E0%B8%A3%E0%B8%B4%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%82%E0%B9%89%E0%B8%AD%E0%B8%A1%E0%B8%B9%E0%B8%A5%E0%B8%9D%E0%B9%88%E0%B8%B2%E0%B8%A2%E0%B8%A7%E0%B8%B4%E0%B8%8A%E0%B8%B2%E0%B8%81%E0%B8%B2%E0%B8%A3&FolderCTID=0x0120000B033DB6CF23A94A832BF1F3EBD041CB)
 [script_Monkey's paw 6/1](https://drive.google.com/drive/folders/1cYP0k_imKJ1lZT61SBCatFXLsg0CxHPt?fbclid=IwAR3kASUQv3j3nTvHL4NzepHreSWcsSHXiXpu2G1qHnoJGSDCMv9jgpqqGqM)   
-[KVIS student pictures]
-(https://drive.google.com/drive/folders/1g3i-PDXhN8ik6h_X6d5PpGTwrsUihCLE?fbclid=IwAR3s6mtb87KRGD8uuGxj1iE-B9vkCEAVnYDDBKeXVpuZ4beTzut6fnObTGI)
-
+[KVIS student pictures](https://drive.google.com/drive/folders/1g3i-PDXhN8ik6h_X6d5PpGTwrsUihCLE?fbclid=IwAR3s6mtb87KRGD8uuGxj1iE-B9vkCEAVnYDDBKeXVpuZ4beTzut6fnObTGI)
+[APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)
