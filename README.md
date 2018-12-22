@@ -30,7 +30,7 @@ M.6 Term 2 Lecture Notes and Resources.
 ### APCYS 2018
 [ตารางเวลา KISF2](https://kvis-my.sharepoint.com/:x:/r/personal/581029_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B09cf5ef3-f955-40c2-af32-a9d1733fde2d%7D&action=default) 
 [APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)  
-[Photos Preparation](https://photos.google.com/share/AF1QipM1A7AuD6J6YCfy7C-wa14lvAaYlZe-nUW65avHwt9e5zzK0ogCENmEk-AtU-ow7w?key=b2FWcUt4UTJYYUYxamVPSzNmejR1M09DSFlkbHR3)
+[Photos Preparation](https://photos.google.com/share/AF1QipM1A7AuD6J6YCfy7C-wa14lvAaYlZe-nUW65avHwt9e5zzK0ogCENmEk-AtU-ow7w?key=b2FWcUt4UTJYYUYxamVPSzNmejR1M09DSFlkbHR3)  
 [Photos Day 0 (Official)](https://photos.google.com/share/AF1QipM1A7AuD6J6YCfy7C-wa14lvAaYlZe-nUW65avHwt9e5zzK0ogCENmEk-AtU-ow7w?key=b2FWcUt4UTJYYUYxamVPSzNmejR1M09DSFlkbHR3)   
 [Photos Day 1 (Official)](https://photos.google.com/share/AF1QipNMnHMT4nDzCmVjO_kV2dFIPmEEETa1FBo1JLcPQ1EPOBxx2sFfJOCC-A_wcrr-ow?fbclid=IwAR1ndagMgRcmYvlcykLq8LPYVAC1K1okJlsSpoF6mYmdzd_27-fqoqbz0J8&key=RUhZbkU3TkhvNGQ2em1fQWh5c2lIRWpUZXJIMUh3)  
 [Photos Day 1 (Stamp)](https://drive.google.com/drive/folders/1rOH2NokMTkBaw_D8XKYLfSA1yv2zr9PO?fbclid=IwAR1SMw2mNjirqp8r4sqPpRfT0Lhth3BzaXhZzeVorZFcpcs1zoWzEaFtjog)  
