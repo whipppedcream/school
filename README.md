@@ -40,6 +40,10 @@ M.6 Term 2 Lecture Notes and Resources.
 [Photos Day 3 (Official)](https://photos.google.com/share/AF1QipO53r2BDchMSoN-McQbbXFHRQsoLK_128fjU7g_xZo8o3XX9zMH1JhnCUgNyuSMVg?fbclid=IwAR1nu3f4DpjHCGxPOtFH2d0UiKzpplKgVBkXHj1yvzIXVLtWNNk1EfT-oH4&key=RklnN1dsRW5paXlUbEpHRDUtV05GeGNXNHRaa3pn)  
 [Photos Day 4 (Official)](https://photos.google.com/share/AF1QipOXAjwaMyOnMdgGt6Jw-5mOrJDeEmoggJa-UOZ6Btyq-exheIkmRGPPvHqRbhXxAQ?fbclid=IwAR30g8yKRvWlQMp8qO87PqIprETKhB2PpFda9g5qLz7TmSC4bCRFS1BPPkw&key=Yk9IN0pKSGpLSzlkSHV5YkF3OFFSZGVRMzZYTGh3)  
 [Ballroom Dance (Jedi)](https://drive.google.com/drive/folders/1fUE-P9NRSSi5XXM1zMXqo4HNcsqnNPHR?fbclid=IwAR1sWa23iPa9l6bNxPkpRADEnYEEqwy5zHUbWVBu7budEQ48lH8YLO8BbCU)  
+[EDM Party (Jedi)](https://drive.google.com/drive/folders/1XRdrnayimcgMSw_KDlsTp45XOEzW9mz1)  
+[Photos (Atom)](https://photos.google.com/share/AF1QipNU-Q1_ZDKAS_yXOH36UFcNL_7XiOAUV8mh_r-LZJUHzopFAQUTEb6WIAHB113tMQ?key=aFdvVTdEQWRCUXBQdHJSODJIV2VDbEE0Smk1b1FR)  
+[Photos (Ruj-1)](https://drive.google.com/drive/folders/16xonh5qigb8xQwVtypzJ-_wF82uCq6rg?fbclid=IwAR0JEuhj7_AIUCTC5zwcNICclv20WNfvt7aFvpCeIRkP4KT7D3SDRc1E6UU)  
+[Photos (Ruj-2)](https://drive.google.com/drive/folders/1xnYEYhIETbL0oqzikC7CchADv957U1e1?fbclid=IwAR2sYcAFyl3_8Vq126W4w9GxjRd1CkH_w9utQo8sfTwa2YBBCVsXC7hA3oU)  
 [KVIS-ISF Awards Ceremony](https://photos.app.goo.gl/Hyz6Ye47HWUb6Lxt7)
 ### Sports Day 2018
 [รายละเอียดกิจกรรม](https://github.com/whipppedcream/school/blob/master/resources/sportsday/%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%AD%E0%B8%B5%E0%B8%A2%E0%B8%94%E0%B8%81%E0%B8%B4%E0%B8%88%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%20KVIS%20Sports%20Day.pdf)  
