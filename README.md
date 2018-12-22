@@ -39,7 +39,7 @@ M.6 Term 2 Lecture Notes and Resources.
 [Photos Day 3 (Official)](https://photos.google.com/share/AF1QipO53r2BDchMSoN-McQbbXFHRQsoLK_128fjU7g_xZo8o3XX9zMH1JhnCUgNyuSMVg?fbclid=IwAR1nu3f4DpjHCGxPOtFH2d0UiKzpplKgVBkXHj1yvzIXVLtWNNk1EfT-oH4&key=RklnN1dsRW5paXlUbEpHRDUtV05GeGNXNHRaa3pn)  
 [Photos Day 4 (Official)](https://photos.google.com/share/AF1QipOXAjwaMyOnMdgGt6Jw-5mOrJDeEmoggJa-UOZ6Btyq-exheIkmRGPPvHqRbhXxAQ?fbclid=IwAR30g8yKRvWlQMp8qO87PqIprETKhB2PpFda9g5qLz7TmSC4bCRFS1BPPkw&key=Yk9IN0pKSGpLSzlkSHV5YkF3OFFSZGVRMzZYTGh3)  
 [Ballroom Dance (Jedi)](https://drive.google.com/drive/folders/1fUE-P9NRSSi5XXM1zMXqo4HNcsqnNPHR?fbclid=IwAR1sWa23iPa9l6bNxPkpRADEnYEEqwy5zHUbWVBu7budEQ48lH8YLO8BbCU)  
-
+[KVIS-ISF Awards Ceremony](https://photos.app.goo.gl/Hyz6Ye47HWUb6Lxt7)
 ### Sports Day 2018
 [รายละเอียดกิจกรรม](https://github.com/whipppedcream/school/blob/master/resources/sportsday/%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%AD%E0%B8%B5%E0%B8%A2%E0%B8%94%E0%B8%81%E0%B8%B4%E0%B8%88%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%20KVIS%20Sports%20Day.pdf)  
 [คนในทีม](https://github.com/whipppedcream/school/blob/master/resources/sportsday/%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%8A%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9A%E0%B8%B8%E0%B8%84%E0%B8%A5%E0%B8%B2%E0%B8%81%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%95%E0%B9%88%E0%B8%A5%E0%B8%B0%E0%B8%97%E0%B8%B5%E0%B8%A1.pdf)  
