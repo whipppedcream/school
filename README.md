@@ -8,7 +8,7 @@ M.6 Term 2 Lecture Notes and Resources.
 ### Useful Links
 [Resources for Admissions](https://github.com/whipppedcream/school/tree/master/resources)  
 [School Food List](https://docs.google.com/spreadsheets/d/1GBVRpE7PFA-rDCZlnV0pyBZfdIbFRFVdLO8EwTMFPpw/edit)  
-[Timetable](https://github.com/whipppedcream/school/blob/master/resources/M.4%252c5%252c6_Timetable%202-2018%20%20revise16.10.2018.pdf) 
+[Timetable](https://github.com/whipppedcream/school/blob/master/resources/M.4%252c5%252c6_Timetable%202-2018%20%20revise16.10.2018.pdf)   
 [Elective Stats](https://docs.google.com/spreadsheets/d/1QSJBqOI2wfa-_BlBbvrqkoGcZIru-j_jhzAt3R_GdKA/edit#gid=421959506)  
 [Admission Preparation Timetable](https://github.com/whipppedcream/school/blob/master/resources/Exams%20Preparation%20Timetable%20for%20Admission%202019.pdf)  
 [Club Details](https://github.com/whipppedcream/school/blob/master/resources/club%20sem2.61.pdf)  
