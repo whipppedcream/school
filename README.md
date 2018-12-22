@@ -26,7 +26,6 @@ M.6 Term 2 Lecture Notes and Resources.
 [Script Monkey's Paw 6/1](https://drive.google.com/drive/folders/1cYP0k_imKJ1lZT61SBCatFXLsg0CxHPt?fbclid=IwAR3kASUQv3j3nTvHL4NzepHreSWcsSHXiXpu2G1qHnoJGSDCMv9jgpqqGqM)   
 [KVIS#2 student Pictures](https://drive.google.com/drive/folders/1g3i-PDXhN8ik6h_X6d5PpGTwrsUihCLE?fbclid=IwAR3s6mtb87KRGD8uuGxj1iE-B9vkCEAVnYDDBKeXVpuZ4beTzut6fnObTGI)  
 
-
 ### APCYS 2018
 [ตารางเวลา KISF2](https://kvis-my.sharepoint.com/:x:/r/personal/581029_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B09cf5ef3-f955-40c2-af32-a9d1733fde2d%7D&action=default) 
 [APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)  
@@ -39,3 +38,9 @@ M.6 Term 2 Lecture Notes and Resources.
 [Photos Day 3 (Official)](https://photos.google.com/share/AF1QipO53r2BDchMSoN-McQbbXFHRQsoLK_128fjU7g_xZo8o3XX9zMH1JhnCUgNyuSMVg?fbclid=IwAR1nu3f4DpjHCGxPOtFH2d0UiKzpplKgVBkXHj1yvzIXVLtWNNk1EfT-oH4&key=RklnN1dsRW5paXlUbEpHRDUtV05GeGNXNHRaa3pn)  
 [Photos Day 4 (Official)](https://photos.google.com/share/AF1QipOXAjwaMyOnMdgGt6Jw-5mOrJDeEmoggJa-UOZ6Btyq-exheIkmRGPPvHqRbhXxAQ?fbclid=IwAR30g8yKRvWlQMp8qO87PqIprETKhB2PpFda9g5qLz7TmSC4bCRFS1BPPkw&key=Yk9IN0pKSGpLSzlkSHV5YkF3OFFSZGVRMzZYTGh3)  
 [Ballroom Dance (Jedi)](https://drive.google.com/drive/folders/1fUE-P9NRSSi5XXM1zMXqo4HNcsqnNPHR?fbclid=IwAR1sWa23iPa9l6bNxPkpRADEnYEEqwy5zHUbWVBu7budEQ48lH8YLO8BbCU)  
+
+### Sports Day 2018
+[รายละเอียดกิจกรรม](https://github.com/whipppedcream/school/blob/master/resources/sportsday/%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%AD%E0%B8%B5%E0%B8%A2%E0%B8%94%E0%B8%81%E0%B8%B4%E0%B8%88%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%20KVIS%20Sports%20Day.pdf)  
+[คนในทีม](https://github.com/whipppedcream/school/blob/master/resources/sportsday/%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%8A%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9A%E0%B8%B8%E0%B8%84%E0%B8%A5%E0%B8%B2%E0%B8%81%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%95%E0%B9%88%E0%B8%A5%E0%B8%B0%E0%B8%97%E0%B8%B5%E0%B8%A1.pdf)
+[กติกา](https://github.com/whipppedcream/school/blob/master/resources/sportsday/%E0%B9%80%E0%B8%AD%E0%B8%81%E0%B8%AA%E0%B8%B2%E0%B8%A3%E0%B8%A3%E0%B8%A7%E0%B8%A1%E0%B8%AA%E0%B8%A3%E0%B8%B8%E0%B8%9B%E0%B8%81%E0%B8%95%E0%B8%B4%E0%B8%81%E0%B8%B2.pdf)  
+[ฟอร์มข้อมูลทีม](https://github.com/whipppedcream/school/blob/master/resources/sportsday/%E0%B8%9F%E0%B8%AD%E0%B8%A3%E0%B9%8C%E0%B8%A1%E0%B8%82%E0%B9%89%E0%B8%AD%E0%B8%A1%E0%B8%B9%E0%B8%A5%E0%B8%97%E0%B8%B5%E0%B8%A1%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B8%81%E0%B8%B5%E0%B8%AC%E0%B8%B2.pdf)  
