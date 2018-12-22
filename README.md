@@ -1,6 +1,7 @@
 # School
 M.6 Term 2 Lecture Notes and Resources.
 
+### Lecture Notes
 |[Thai History](https://github.com/whipppedcream/school/tree/master/thai-history)| [World History](https://github.com/whipppedcream/school/tree/master/world-history)| [Economics](https://github.com/whipppedcream/school/tree/master/economics)|[ODE](https://github.com/whipppedcream/school/tree/master/ode)|[Astronomy](https://github.com/whipppedcream/school/tree/master/astronomy)|
 |:----------:|:---:|:-:|:-:|:-:|
 
