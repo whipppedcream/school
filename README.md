@@ -24,5 +24,12 @@ M.6 Term 2 Lecture Notes and Resources.
 
 #### APCYS 2018
 [APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)  
-[Photos Day 0-1](https://photos.google.com/share/AF1QipNMnHMT4nDzCmVjO_kV2dFIPmEEETa1FBo1JLcPQ1EPOBxx2sFfJOCC-A_wcrr-ow?key=RUhZbkU3TkhvNGQ2em1fQWh5c2lIRWpUZXJIMUh30)  
-[Photos Day 2](https://photos.google.com/share/AF1QipNUo9OE_zRtl8NiA7cW2pdFH0hRpWlPgBef7lZpV4NTGOACWvIanr3KKokNKRDtcQ?key=MF9VX1IwWmY3c3hvYlM5X3FrM09sLW5WWTBZUUh3)  
+[Photos Preparation](https://photos.google.com/share/AF1QipM1A7AuD6J6YCfy7C-wa14lvAaYlZe-nUW65avHwt9e5zzK0ogCENmEk-AtU-ow7w?key=b2FWcUt4UTJYYUYxamVPSzNmejR1M09DSFlkbHR3)
+[Photos Day 0 (Official)](https://photos.google.com/share/AF1QipM1A7AuD6J6YCfy7C-wa14lvAaYlZe-nUW65avHwt9e5zzK0ogCENmEk-AtU-ow7w?key=b2FWcUt4UTJYYUYxamVPSzNmejR1M09DSFlkbHR3)   
+[Photos Day 1 (Official)](https://photos.google.com/share/AF1QipNMnHMT4nDzCmVjO_kV2dFIPmEEETa1FBo1JLcPQ1EPOBxx2sFfJOCC-A_wcrr-ow?fbclid=IwAR1ndagMgRcmYvlcykLq8LPYVAC1K1okJlsSpoF6mYmdzd_27-fqoqbz0J8&key=RUhZbkU3TkhvNGQ2em1fQWh5c2lIRWpUZXJIMUh3)
+[Photos Day 1 (Stamp)](https://drive.google.com/drive/folders/1rOH2NokMTkBaw_D8XKYLfSA1yv2zr9PO?fbclid=IwAR1SMw2mNjirqp8r4sqPpRfT0Lhth3BzaXhZzeVorZFcpcs1zoWzEaFtjog)  
+[Photos Day 1 (JJ)](https://photos.google.com/share/AF1QipOFo2lGau5MRX8lqxllQVe6jj5UrMGUNJP5QnLEf6uliE7iNFM2N_V7SJW0_PSI4A?key=VFpsRlVwZ0EzZDRwWWgta2dLenlYS2FpR0Q1bEFB)  
+[Photos Day 2 (Official)](https://photos.google.com/share/AF1QipNUo9OE_zRtl8NiA7cW2pdFH0hRpWlPgBef7lZpV4NTGOACWvIanr3KKokNKRDtcQ?key=MF9VX1IwWmY3c3hvYlM5X3FrM09sLW5WWTBZUUh3)  
+[Photos Day 3 (Official)](https://photos.google.com/share/AF1QipO53r2BDchMSoN-McQbbXFHRQsoLK_128fjU7g_xZo8o3XX9zMH1JhnCUgNyuSMVg?fbclid=IwAR1nu3f4DpjHCGxPOtFH2d0UiKzpplKgVBkXHj1yvzIXVLtWNNk1EfT-oH4&key=RklnN1dsRW5paXlUbEpHRDUtV05GeGNXNHRaa3pn)  
+[Photos Day 4 (Official)](https://photos.google.com/share/AF1QipOXAjwaMyOnMdgGt6Jw-5mOrJDeEmoggJa-UOZ6Btyq-exheIkmRGPPvHqRbhXxAQ?fbclid=IwAR30g8yKRvWlQMp8qO87PqIprETKhB2PpFda9g5qLz7TmSC4bCRFS1BPPkw&key=Yk9IN0pKSGpLSzlkSHV5YkF3OFFSZGVRMzZYTGh3)  
+[Ballroom Dance (Jedi)](https://drive.google.com/drive/folders/1fUE-P9NRSSi5XXM1zMXqo4HNcsqnNPHR?fbclid=IwAR1sWa23iPa9l6bNxPkpRADEnYEEqwy5zHUbWVBu7budEQ48lH8YLO8BbCU)  
