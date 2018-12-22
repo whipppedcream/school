@@ -15,7 +15,7 @@ M.6 Term 2 Lecture Notes and Resources.
 [Timetable](https://github.com/whipppedcream/school/blob/master/resources/M.4%252c5%252c6_Timetable%202-2018%20%20revise16.10.2018.pdf)   
 [Elective Stats](https://docs.google.com/spreadsheets/d/1QSJBqOI2wfa-_BlBbvrqkoGcZIru-j_jhzAt3R_GdKA/edit#gid=421959506)  
 [Club Details](https://github.com/whipppedcream/school/blob/master/resources/club%20sem2.61.pdf)  
-[Academic Clinic Schedule](https://github.com/whipppedcream/school/blob/master/resources/%E0%B8%95%E0%B8%B2%E0%B8%A3%E0%B8%B2%E0%B8%87%E0%B8%84%E0%B8%A5%E0%B8%B4%E0%B8%99%E0%B8%B4%E0%B8%81%E0%B8%A7%E0%B8%B4%E0%B8%8A%E0%B8%B2%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B8%A0%E0%B8%B2%E0%B8%84%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%202%20%E0%B8%9B%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%A8%E0%B8%B6%E0%B8%81%E0%B8%A9%E0%B8%B2%202561.pdf) 
+[Academic Clinic Schedule](https://github.com/whipppedcream/school/blob/master/resources/%E0%B8%95%E0%B8%B2%E0%B8%A3%E0%B8%B2%E0%B8%87%E0%B8%84%E0%B8%A5%E0%B8%B4%E0%B8%99%E0%B8%B4%E0%B8%81%E0%B8%A7%E0%B8%B4%E0%B8%8A%E0%B8%B2%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B8%A0%E0%B8%B2%E0%B8%84%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%202%20%E0%B8%9B%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%A8%E0%B8%B6%E0%B8%81%E0%B8%A9%E0%B8%B2%202561.pdf)  
 [Midterm](https://github.com/whipppedcream/school/tree/master/resources/midterm)  
 [Midterm Shortnote](https://kvis-my.sharepoint.com/:f:/g/personal/6000166_kvis_ac_th/EnnfKYsjOdhKsgVeGZ38xyUBLHKNFkNTHUkRN1niyqrQFQ?e=jMRWqH)  
 #### Documents
