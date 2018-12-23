@@ -54,7 +54,7 @@ Submit 2 days before class (Tuesday, October 23).
 [Sway G.2](https://sway.office.com/JGZ0v1AdgZCnP8Si?ref=Link)  
 [Sway G.3](https://sway.office.com/WcKZKrcrg7E5GBCg?ref=Link)  
 
-Summary (sorry for any mistake)
+### Summary (sorry for any mistake)  
 **Carl Jasper: Linguistic evidence**
 Before linguistic era --> people is biologically developped
 After linguistic era --> people is culturally developped
