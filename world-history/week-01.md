@@ -54,16 +54,16 @@ Submit 2 days before class (Tuesday, October 23).
 [Sway G.2](https://sway.office.com/JGZ0v1AdgZCnP8Si?ref=Link)  
 [Sway G.3](https://sway.office.com/WcKZKrcrg7E5GBCg?ref=Link)  
 
-### Summary (sorry for any mistake)  
-**Carl Jasper: Linguistic evidence**
+### Summary (sorry for any mistake)   
+**Carl Jasper: Linguistic evidence**  
 Before linguistic era --> people is biologically developped  
 After linguistic era --> people is culturally developped  
 
-**Grombich: time and place conciousness**
+**Grombich: time and place conciousness**  
 --> knowing what happen when and where   
 --> 3100 BC Egypt  
 
-**David Christian: the very beginning of time**
+**David Christian: the very beginning of time**  
 --> every event since the beginning of the universe affect the event later on in time.  
 Thus, we cannot understand the later event with understanding the earlier one.  
 --> universe changes in "treshold" when which is when a "goldilock condition" is met.
