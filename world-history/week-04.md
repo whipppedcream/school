@@ -39,3 +39,24 @@ There were evidences related to agriculture
 Hammurabi is the Babylonian law. Marduk, the god of water vegetation gave Hammurabi, the king, the laws.
 
 The Sumerians river allowed people to settle at different places and create different civilizations, due to the river being highly branched.x
+
+### Summary 
+
+**Jared Diamond**  
+- "Acriculture is the worst mistake of humankind"
+- We eat less variety of food, thus people are shorter
+- more diseases
+- have social hierachy
+- We don't want to change but we **have to** change from **quality to quantity**.
+
+**Harari (Sapiens)**
+- "Agriculture happenned by accident"
+- It can't be stop because of the population growth
+
+
+**Andrew Mars**
+- Starting with climate change --> food is harder to find + people are lazy --> settlement and grow crops
+- All the bad things and reasons are stated like Jared and Harari.
+
+
+
