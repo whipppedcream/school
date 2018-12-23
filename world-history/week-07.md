@@ -5,7 +5,7 @@
 ### The Vedas
 
 - sruti (heard), not remembered
-- Humans are divided into classes from body parts of the god
+- Humans are divided into classes from body parts of the god (caste system)
   - Brahmins (priests) come from the mouth.
   - Kshatriyas (rulers) come from the arms
   - Vaishyas (peasants) come from the legs
