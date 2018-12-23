@@ -49,3 +49,9 @@ Submit 2 days before class (Tuesday, October 23).
 > The author is Ernst Gombirch, an Austrian-born art historian, who is well known for many works of cultural and art history. He argued that history begins during the time where we have a very precise idea of what had happened and when it happened, and that during the beginning of history people already had things that modern people had, such as cows, sheeps, dogs, etc. The author pinpoints the beginning of history to 3100 BC in Egypt. This is probably because it was one of the earliest civilizations where we had exact and clear records of what had happened in the past in the forms of hymns and landmarks such as the pyramids.
 
 [Sway](https://l.facebook.com/l.php?u=https%3A%2F%2Fsway.office.com%2Fzki1B8BoG2ZzDBMD%3Ffbclid%3DIwAR24bX4dJYSBk1_zfSwiQnoxjlUWLaq2_W9BOMfa_Rw6dwwBre_xf3m3wMc&h=AT2Ji1qmKOJd0ZCHJ0P4C0uFfW3GJfFNGkpiPkvjkRaewWL4v6iaIQSYCFZ4qBQdRPc5eOF74GWM1Zfr-mTd9C72UZD2OWcqrjPH0n3sqckwXWO1WXmq2F48e9GYFRR_KZ2Ymw) blog work.
+
+[Sway G.1](https://sway.office.com/jK7I6zAVxLCP0AC4?ref=Link)  
+[Sway G.2](https://sway.office.com/JGZ0v1AdgZCnP8Si?ref=Link)  
+[Sway G.3](https://sway.office.com/WcKZKrcrg7E5GBCg?ref=Link)  
+
+
