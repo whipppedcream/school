@@ -56,13 +56,14 @@ Submit 2 days before class (Tuesday, October 23).
 
 ### Summary (sorry for any mistake)  
 **Carl Jasper: Linguistic evidence**
-Before linguistic era --> people is biologically developped
-After linguistic era --> people is culturally developped
+Before linguistic era --> people is biologically developped  
+After linguistic era --> people is culturally developped  
 
 **Grombich: time and place conciousness**
---> knowing what happen when and where --> 3100 BC Egypt
+--> knowing what happen when and where   
+--> 3100 BC Egypt  
 
 **David Christian: the very beginning of time**
---> every event since the beginning of the universe affect the event later on in time.
-Thus, we cannot understand the later event with understanding the earlier one.
+--> every event since the beginning of the universe affect the event later on in time.  
+Thus, we cannot understand the later event with understanding the earlier one.  
 --> universe changes in "treshold" when which is when a "goldilock condition" is met.
