@@ -30,7 +30,8 @@ M.6 Term 2 Lecture Notes and Resources.
 [เพลงครูอุ๊บอิ๊บ](https://l.facebook.com/l.php?u=https%3A%2F%2Fdocs.google.com%2Fspreadsheets%2Fd%2F1lkhoZWeNI2SHIb6hMM9-76cm9hWeenhBHKwE1kdCOko%2Fedit%3Fusp%3Dsharing%26fbclid%3DIwAR0cSYJsJnmxiX2QrG6VrEXOxbrPKY2d4n0gbu1rmEkC4jK5DA-G3IpekDo&h=AT3ngPTzZf6SlAOnX4H89Li0-6pWuxflZbTj9WI-RkJSBPWSMWCht7lPle33jMmGESt4AXJAlv34uZYn5zCJkEe0DWfMt-efvxEb7eQz_2w-rv09uVZ_V968BLlt7EGbnT55zg)      
 [Script Monkey's Paw 6/1](https://drive.google.com/drive/folders/1cYP0k_imKJ1lZT61SBCatFXLsg0CxHPt?fbclid=IwAR3kASUQv3j3nTvHL4NzepHreSWcsSHXiXpu2G1qHnoJGSDCMv9jgpqqGqM)   
 [KVIS#2 student Pictures](https://drive.google.com/drive/folders/1g3i-PDXhN8ik6h_X6d5PpGTwrsUihCLE?fbclid=IwAR3s6mtb87KRGD8uuGxj1iE-B9vkCEAVnYDDBKeXVpuZ4beTzut6fnObTGI)  
-
+[6/1 Photos (Ruj)](https://drive.google.com/drive/folders/1VJFaIzJDD7AUN2iR9ALUNeOe-EzLSIVG?fbclid=IwAR2nZoLBv-7tDngsEdn6VhE9LOEC2MlIDMBMOB_-V5KnCcV_rNQZpsnRIn4)  
+[6/1 Photos (Palm)](https://drive.google.com/drive/folders/16RHMPcFoVxJapnM9Dvri1S6uT2DRBzuj?fbclid=IwAR0VwQd2lVvn7Tb8xiAmsovbvi4JtuAr5ur8GpbtmJjUymfJHfHgpUYl1WI)  
 ### APCYS 2018
 [ตารางเวลา KISF2](https://kvis-my.sharepoint.com/:x:/r/personal/581029_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B09cf5ef3-f955-40c2-af32-a9d1733fde2d%7D&action=default) 
 [APCYS Buddies Namelist](https://kvis-my.sharepoint.com/:x:/r/personal/6000196_kvis_ac_th/_layouts/15/Doc.aspx?sourcedoc=%7B95ba1dbf-f6f8-42ad-8f5b-f9aee01816ed%7D&action=default)  
