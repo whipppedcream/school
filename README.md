@@ -16,8 +16,11 @@ M.6 Term 2 Lecture Notes and Resources.
 [Elective Stats](https://docs.google.com/spreadsheets/d/1QSJBqOI2wfa-_BlBbvrqkoGcZIru-j_jhzAt3R_GdKA/edit#gid=421959506)  
 [Club Details](https://github.com/whipppedcream/school/blob/master/resources/club%20sem2.61.pdf)  
 [Academic Clinic Schedule](https://github.com/whipppedcream/school/blob/master/resources/%E0%B8%95%E0%B8%B2%E0%B8%A3%E0%B8%B2%E0%B8%87%E0%B8%84%E0%B8%A5%E0%B8%B4%E0%B8%99%E0%B8%B4%E0%B8%81%E0%B8%A7%E0%B8%B4%E0%B8%8A%E0%B8%B2%E0%B8%81%E0%B8%B2%E0%B8%A3%20%E0%B8%A0%E0%B8%B2%E0%B8%84%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2%E0%B8%99%E0%B8%97%E0%B8%B5%E0%B9%88%202%20%E0%B8%9B%E0%B8%B5%E0%B8%81%E0%B8%B2%E0%B8%A3%E0%B8%A8%E0%B8%B6%E0%B8%81%E0%B8%A9%E0%B8%B2%202561.pdf)  
-[Midterm](https://github.com/whipppedcream/school/tree/master/resources/midterm)  
+[Midterm Schedule](https://github.com/whipppedcream/school/tree/master/resources/midterm)  
 [Midterm Shortnote](https://kvis-my.sharepoint.com/:f:/g/personal/6000166_kvis_ac_th/EnnfKYsjOdhKsgVeGZ38xyUBLHKNFkNTHUkRN1niyqrQFQ?e=jMRWqH)  
+[เลขประจำตัว KVIS 2](https://github.com/whipppedcream/school/blob/master/resources/143255.jpg)  
+[เลขประจำตัว KVIS 3](https://github.com/whipppedcream/school/blob/master/resources/143254.jpg)  
+[เลขประจำตัว KVIS 4](https://github.com/whipppedcream/school/blob/master/resources/143253.jpg)  
 #### Documents
 [แบบเพิ่ม/ถอนรายวิชา](https://github.com/whipppedcream/school/blob/master/resources/%E0%B8%A7%E0%B8%81.1-02%20%20%E0%B9%81%E0%B8%9A%E0%B8%9A%E0%B8%84%E0%B8%B3%E0%B8%A3%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%82%E0%B8%AD%E0%B9%80%E0%B8%9E%E0%B8%B4%E0%B9%88%E0%B8%A1-%E0%B8%96%E0%B8%AD%E0%B8%99%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%A7%E0%B8%B4%E0%B8%8A%E0%B8%B2.pdf)  
 [ตรวจสอบสถานะเอกสาร](https://goo.gl/quwJjr)  
@@ -48,7 +51,7 @@ M.6 Term 2 Lecture Notes and Resources.
 [Photos (Atom)](https://photos.google.com/share/AF1QipNU-Q1_ZDKAS_yXOH36UFcNL_7XiOAUV8mh_r-LZJUHzopFAQUTEb6WIAHB113tMQ?key=aFdvVTdEQWRCUXBQdHJSODJIV2VDbEE0Smk1b1FR)  
 [Photos (Ruj-1)](https://drive.google.com/drive/folders/16xonh5qigb8xQwVtypzJ-_wF82uCq6rg?fbclid=IwAR0JEuhj7_AIUCTC5zwcNICclv20WNfvt7aFvpCeIRkP4KT7D3SDRc1E6UU)  
 [Photos (Ruj-2)](https://drive.google.com/drive/folders/1xnYEYhIETbL0oqzikC7CchADv957U1e1?fbclid=IwAR2sYcAFyl3_8Vq126W4w9GxjRd1CkH_w9utQo8sfTwa2YBBCVsXC7hA3oU)  
-[KVIS-ISF Awards Ceremony](https://photos.app.goo.gl/Hyz6Ye47HWUb6Lxt7)
+[KVIS-ISF Awards Ceremony](https://photos.app.goo.gl/Hyz6Ye47HWUb6Lxt7)  
 ### Sports Day 2018
 [รายละเอียดกิจกรรม](https://github.com/whipppedcream/school/blob/master/resources/sportsday/%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%A5%E0%B8%B0%E0%B9%80%E0%B8%AD%E0%B8%B5%E0%B8%A2%E0%B8%94%E0%B8%81%E0%B8%B4%E0%B8%88%E0%B8%81%E0%B8%A3%E0%B8%A3%E0%B8%A1%20KVIS%20Sports%20Day.pdf)  
 [คนในทีม](https://github.com/whipppedcream/school/blob/master/resources/sportsday/%E0%B8%A3%E0%B8%B2%E0%B8%A2%E0%B8%8A%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%99%E0%B8%B1%E0%B8%81%E0%B9%80%E0%B8%A3%E0%B8%B5%E0%B8%A2%E0%B8%99%E0%B9%81%E0%B8%A5%E0%B8%B0%E0%B8%9A%E0%B8%B8%E0%B8%84%E0%B8%A5%E0%B8%B2%E0%B8%81%E0%B8%A3%E0%B9%83%E0%B8%99%E0%B9%81%E0%B8%95%E0%B9%88%E0%B8%A5%E0%B8%B0%E0%B8%97%E0%B8%B5%E0%B8%A1.pdf)  
